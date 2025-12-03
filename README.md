@@ -1,1 +1,1 @@
-# Tuwqaiq SDS Bootcamp
+# Tuwaiq SDS Bootcamp
